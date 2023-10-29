@@ -12,7 +12,7 @@
 
 - 🌱 I’m currently study **Inter second year**
 
-- 🤝 follow me facebook [https://www.facebook.com/mdkobirhosen1211?mibextid=ZbWKwL](https://www.facebook.com/mdkobirhosen1211?mibextid=ZbWKwL)
+- 🤝 Follow me facebook [https://www.facebook.com/mdkobirhosen1211?mibextid=ZbWKwL](https://www.facebook.com/mdkobirhosen1211?mibextid=ZbWKwL)
 
 - 📫 How to reach me **sonygaira24@gmail.com**
 
