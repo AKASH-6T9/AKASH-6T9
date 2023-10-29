@@ -12,9 +12,7 @@
 
 - 🌱 I’m currently study **Inter second year**
 
-- 👯 I’m looking to collaborate on **FREELANCER**
-
-- 🤝 I’m looking for help with [https://www.facebook.com/mdkobirhosen1211?mibextid=ZbWKwL](https://www.facebook.com/mdkobirhosen1211?mibextid=ZbWKwL)
+- 🤝 follow me facebook [https://www.facebook.com/mdkobirhosen1211?mibextid=ZbWKwL](https://www.facebook.com/mdkobirhosen1211?mibextid=ZbWKwL)
 
 - 📫 How to reach me **sonygaira24@gmail.com**
 
