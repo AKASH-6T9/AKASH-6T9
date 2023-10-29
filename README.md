@@ -14,7 +14,7 @@
 
 - 🤝 Follow me facebook [https://www.facebook.com/mdkobirhosen1211?mibextid=ZbWKwL](https://www.facebook.com/mdkobirhosen1211?mibextid=ZbWKwL)
 
-- 📫 How to reach me **sonygaira24@gmail.com**
+- 📫 Contract me **sonygaira24@gmail.com**
 
 - ⚡ Fun fact **I Think I am Funny 🙂**
 
